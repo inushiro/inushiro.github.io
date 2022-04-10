@@ -1,0 +1,1 @@
+# inushiro.github.io
